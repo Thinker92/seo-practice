@@ -1,1 +1,1 @@
-# seo-practice
+# SEO-practice
